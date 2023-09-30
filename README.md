@@ -5,4 +5,4 @@ https://lustrous-gumdrop-d98566.netlify.app/
 
 
 
-![iPad-1696092218944](https://github.com/Alexandra2888/omnifood/assets/76844097/c3a6c79f-0066-444e-a4b9-6b088969231b)
+![iPhone 12 Pro-1696092218979](https://github.com/Alexandra2888/omnifood/assets/76844097/89ec94ae-8144-420f-ad71-3ecb1af56d36)
